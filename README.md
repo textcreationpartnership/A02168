@@ -37,28 +37,32 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Scottish historie of Iames the fourth, slaine at Flodden Entermixed with a pleasant comedie, pre
+
 #####Body#####
 
-1. Laus Deo detur in Eternum.Enter the King of England, the King of Scots, Dorithe his Queen▪
+1. THE SCOTTISH
+Hystorie of Iames the
+fourth, slaine at Flodden.
+
+    _ Laus Deo detur in Eternum.Enter the King of England, the King of Scots, Dorithe his Queen▪
 the Countesse, Lady Ida, with other Lords. And Ateukin with
 them aloofe.
 Actus primus. Scena prima.
 After the first act.Ober.Here see I good fond actions in thy gyg,And meanes to paint the worldes in 
-1. Actus Secundus. Schena Prima.
+    _ Actus Secundus. Schena Prima.
 
-1. Enter Bohan with Obiron.
+    _ Enter Bohan with Obiron.
 3. Act.
 
-1. Chorus Actus 3. Schena Prima.
+    _ Chorus Actus 3. Schena Prima.
 
-1. Chorus.
+    _ Chorus.
 
-1. Actus Quartus. Schena Prima.
+    _ Actus Quartus. Schena Prima.
 
-1. Chorus.
+    _ Chorus.
 
-1. Actus Quintus. Schena Prima.
+    _ Actus Quintus. Schena Prima.
 
 **Types of content**
 
